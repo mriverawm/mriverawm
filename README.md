@@ -34,6 +34,6 @@ Con **8 años de experiencia** asegurando la calidad de productos digitales, me 
 - **LinkedIn:** [linkedin.com/in/miguel-angel-rivera-niño](https://co.linkedin.com/in/miguel-angel-rivera-ni%C3%B1o)
 - **Email:** [mrivera@wi-mobile.com]
 
-> *"La calidad no es un acto, es un hábito."* ```
+> *"La calidad no es un acto, es un hábito."* 
 
 ---
